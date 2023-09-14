@@ -1,5 +1,6 @@
 ### Hi, I'm Artyom 👋
-- 🔭 I’m currently running the Talent Acquisition Operations for https://github.com/evolution-gaming
+- 🚀 Currently talent acquisition and management consultant at my own venture allthehires.com
+- 🔭 Ex- Talent Acquisition Operations for https://github.com/evolution-gaming
 - 📫 How to reach me: @ArtyomIT on Twitter or @masterdze on Telegram
 
 ## On the web:
